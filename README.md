@@ -1,1 +1,1 @@
-# orzyyb
+# YYB is our Red Sun!
